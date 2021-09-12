@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @FretFarmer
+- 👀 I’m interested in Farming
+- 📫 How to reach me via my discord server: https://discord.gg/juvMWfa2G2
